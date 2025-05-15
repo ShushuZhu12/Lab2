@@ -6,12 +6,14 @@
 - 3/4 cup unsweetened cocoa powder
 - 1 cup chocolate chips
 - 1 tsp vanilla extract
-- ...
+- 500 cigarettes
 
 ## Instructions:
 1. Preheat the oven to 350°F (175°C).
 2. In a large bowl, whisk together the flour, sugar, cocoa powder, chocolate chips, and vanilla extract.
-3. ...
+3. Let the dough rest for 45 minutes
+4. Bake for 20 minutes
+4. Smoke the cigarettes so much that it can cook the rest of the cake
 
 ## Additional Directions by Alice:
 4. In a separate bowl, beat the eggs and add them to the mixture. Stir until well combined.
